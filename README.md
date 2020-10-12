@@ -1,6 +1,5 @@
 ### READ ME PLZ
 ***For real please read me. I long to be read.***
 
-I HAVE READ YOU!!!!
-I HAVE READ YOU AGAIN BECAUSE I MESSED UP THE FIRST BRANCH!
+For real please read me. I long to be read. I ACCIDENTALLY DELETED EVEERYTHING SO HERE IS SOME MORE TEXT!
 He'll yeah Bröther
